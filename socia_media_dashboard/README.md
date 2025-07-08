@@ -1,5 +1,5 @@
 
-# Hi, I'm Vishvajeet Singh Rana! 👋
+# Hi, I'm Arpit Singh! 👋
  
 
 ## 🚀 About Me
